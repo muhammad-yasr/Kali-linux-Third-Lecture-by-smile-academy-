@@ -1,1 +1,1 @@
-# Kali-linux-Third-Lecture-by-smile-academy-
+دا سافټویر په دی خاطر استعمالیږی چی تاسو ته ووایه ستاسو فطرت سه شی دی
